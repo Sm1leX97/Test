@@ -7,3 +7,6 @@ Alles klar woleln wir mal hier eine Beschreibung machen was das für ein geiler 
 * pafenmwioppfm
 * wfrepoiwnnmemefpoio
 * wqefpoiimweof
+
+Peter sagte einst:
+> Das it das lieblingszitat das der charakter hat
